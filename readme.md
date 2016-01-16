@@ -10,7 +10,7 @@ https://www.facebook.com/rainkarnichi
 
 ---
 
-Download here:
+Download here:  
 https://github.com/rainkarnichi  
 https://fontlibrary.org/en/member/rainkarnichi  
 http://www.dafont.com/aydi-rainkarnichi.d5676  
